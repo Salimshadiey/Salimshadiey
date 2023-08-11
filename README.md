@@ -1,3 +1,6 @@
+![images](https://github.com/Salimshadiey/Salimshadiey/assets/102361434/edea7968-cc39-470b-888b-96335e386b6c)
+
+
 ## Hey there, fellow explorers! 👋
 
 I'm Salim Hamza, a passionate tech enthusiast, software engineering major, and digital artist on a journey of endless exploration. 🚀
